@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **dimasprbowo50@gmail.com**
 
-- ⚡ Fun fact **I Think i am Human**
+- ⚡ Fun fact **I think, i am Human**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
